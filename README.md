@@ -1,4 +1,4 @@
-![](https://i.ibb.co/qynBHYT/COVER-BLACK.jpg)
+![](https://i.ibb.co/Yjrv6Sn/COVER-WHITE.jpg)
 
 ## 🙃 Hello, I am Yami. I'm a UI Visual Designer
 🎨 My background growth has been related to branding, social media and digital illustration but since 3 years ago I feel comfortable with my potential focused on UI design. I usually seek for feedback to improve myself and in difficult situations I try not to depend on anyone else to make decisions that need to be taken in a rush. 

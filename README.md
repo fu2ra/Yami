@@ -9,4 +9,4 @@
 
 ### ✨Get in touch✨
 [befutura@gmail.com](mailto:barushev@gmail.com)
-(+51)912164427
+/ (+51)912164427

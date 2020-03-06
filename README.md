@@ -1,4 +1,4 @@
-![](https://i.ibb.co/FBdKjK1/cover-futura.png)
+![](https://i.ibb.co/B6qF9P6/Untitled-1.jpg)
 
 ## 🙃 Hello, I am Yami. I'm a UI Visual Designer
 🎨 My background growth has been related to branding, social media and digital illustration but since 3 years ago I feel comfortable with my potential focused on UI design. I usually seek for feedback to improve myself and in difficult situations I try not to depend on anyone else to make decisions that need to be taken in a rush. 
@@ -12,4 +12,3 @@ My field of expertise wich may be of use to you lies in the following:I've worke
 [befutura@gmail.com](mailto:barushev@gmail.com)
 / (+51)912164427
 [Linkedin](https://www.linkedin.com/in/befutura/) 
-![](https://i.ibb.co/FBdKjK1/cover-futura.png)

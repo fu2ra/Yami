@@ -1,6 +1,6 @@
 ## 🙃 Hi, my name is Yami I'm a UI Visual Designer
 
-🎨 My background growth has been related to branding, social media and  digital illustration but since 3 years ago I feel comfortable with my potential focused on UI design. I usually seek for feedback to improve myself and try not to depend on anyone else to make decisions that need to be taken in a rush. 
+🎨 My background growth has been related to branding, social media and  digital illustration but since 3 years ago I feel comfortable with my potential focused on UI design. I usually seek for feedback to improve myself and situations de aprietos I try not to depend on anyone else to make decisions that need to be taken in a rush. 
 
 ### What I do
 [My field of expertise wich may be of use to you lies in the following: I’ve worked with small, agile teams](https://www.linkedin.com/in/befutura/) 

@@ -1,8 +1,8 @@
-## 🙃Hi, my name is Yami I'm a UI Visual Designer
+## 🙃 Hi, my name is Yami I'm a UI Visual Designer
 
 You can use the [editor on GitHub](https://github.com/fu2ra/profile/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+🚲When I’m not designing, you can probably find me [ridin' on my bike](https://www.instagram.com/yamicony/), cooking, or learning a new hobby.
 
 ### Markdown
 

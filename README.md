@@ -12,3 +12,4 @@ My field of expertise wich may be of use to you lies in the following:I've worke
 [befutura@gmail.com](mailto:barushev@gmail.com)
 / (+51)912164427
 [Linkedin](https://www.linkedin.com/in/befutura/) 
+![](https://i.ibb.co/FBdKjK1/cover-futura.png)

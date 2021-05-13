@@ -8,4 +8,4 @@ I’ve worked on projects for brands such as Interbank, Rimac, Mapfre, Wong and 
 
 ### 🌟 Get in touch
 [befutura@gmail.com](mailto:barushev@gmail.com)
-/ (+51)912164427 / [Linkedin](https://www.linkedin.com/in/befutura/) 
+/ (+56)990 771 387 / [Linkedin](https://www.linkedin.com/in/befutura/) 

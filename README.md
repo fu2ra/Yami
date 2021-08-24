@@ -1,4 +1,4 @@
-## 👀 Hello, I am Yami. I'm a UI Visual Designer
+##  Hello, I am Yami. I'm a UX/UI and i love resolve cases
 🎨  My background has grown since 2012 related to branding, social media and digital illustration but since 3 years ago I feel comfortable with my potential focused on UI design. I usually seek for feedback to improve myself and in challenging situations I try not to depend on anyone else to make decisions that need to be taken in a rush. 
 
 ### What I do
